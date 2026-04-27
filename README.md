@@ -47,7 +47,7 @@
 ---
 
 ## 📫 Connect With Me
-- 📧 Email: your-email@gmail.com
+- 📧 Email: vaishnaviwaghne6@gmail.com
 
 ---
 
